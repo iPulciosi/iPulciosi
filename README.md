@@ -1,2 +1,0 @@
-# iPulciosi
-I Pulciosi
